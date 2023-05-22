@@ -8,6 +8,6 @@ You can check out my portfolio here
 📫 How to reach me: LinkedIn
 
 
-gültekin mg/ guilteking is a ✨ special ✨ repository
+gültekin mg/ guiltyking is a ✨ special ✨ repository
 
 <!---You can click the Preview link to take a look at your changes. --->
